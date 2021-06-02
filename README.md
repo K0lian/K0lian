@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @K0lian
+- 👀 I’m interested in gamedev
+- 🌱 I’m currently learning coding
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me nic-c15@mail.ru / https://vk.com/nick.bld2003
